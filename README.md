@@ -1,4 +1,4 @@
-# HWID-SPOOFER
+# HWID-SPOOFER LEAKED
 
 ![image](https://github.com/user-attachments/assets/ee2f6d9a-60c2-4a59-a7ea-46c3d3b76650)
 
